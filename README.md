@@ -1,24 +1,30 @@
-Unboxing and Setup ij.start.canon setup ts3322 Process
+<h2>Unboxing and Setup ij.start.canon setup ts3322 Process</h2>
 
-Have you recently owned the ij.start.canon ts3322? If yes is your answer, and wondering about how to unbox and set it up. Then no need to worry more, here you will get a brief guide on the same.
 
-Canon ij.start.canon ts3322 is a setup page for the Canon printer. This all-in-one printer can print, copy, fax, and scan. And setting up the printer isn't a complicated job.
+<p>Have you recently owned the ij.start.canon ts3322? If yes is your answer, and wondering about how to unbox and set it up. Then no need to worry more, here you will get a brief guide on the same.Canon ij.start.canon ts3322 is a setup page for the Canon printer. This all-in-one printer can print, copy, fax, and scan. And setting up the printer isn't a complicated job.It is a quite simple task. However, there are many users who don’t know how to set up the Canon printer. If you also belong to the same category, then you arrived at the right destination.Here you will get an easy-to-follow step-by-step guide on unboxing and setup ij.start.canon setup ts3322 process. Simply have a glance at the following section.</p>
+<br>
 
-It is a quite simple task. However, there are many users who don’t know how to set up the Canon printer. If you also belong to the same category, then you arrived at the right destination.
+<h2>Steps to Unbox the ij.start.canon ts3322</h2>
 
-Here you will get an easy-to-follow step-by-step guide on unboxing and setup ij.start.canon setup ts3322 process. Simply have a glance at the following section.
-Steps to Unbox the ij.start.canon ts3322
-Unboxing the printer does not require too much workaround, it is more simpler than you think. But there are a few things, that you should take care of. So, follow the below instructions to unbox the Canon printer. 
-1. Check the Box
+<p> Unboxing the printer does not require too much workaround, it is more simpler than you think. But there are a few things, that you should take care of. So, follow the below instructions to unbox the Canon printer. </p>
+
+<ol>
+<p>1. Check the Box
 Before proceeding, you need to check the box carefully, for any sign of damage while shipping. Then proceed by cutting the tape, and be careful while using a box cutter or scissors to avoid any damage to the printer.
-2. Inspect the Printer
+
+2.. Inspect the Printer
 Once the box is open, check the printer to ensure everything is included. Common items found in the Canon printer package include the printer itself, ink cartridge, power cord, USB cable, user manual, and installation CD.
-3. Remove the Packaging Material 
+3.. Remove the Packaging Material 
 Now take the printer out of the box and place it on a flat and stable surface. After this, remove any packaging material, protective tape, or protective cover from the printer. 
 4. Install the Ink Cartridge
 Once placed the printer, now locate the ink cartridge with the printer. Then open the access door of the ink cartridge. After this, follow the color code marking into its designated slot. Press the cartridge until you hear a click sound, which means the cartridge is securely placed.
 5. Load Paper
-Now you have to adjust paper guides within the input tray to accommodate the size of the paper you are using. Then load the stack of plain paper into the tray. After that, modify the guide snugly against the paper to avoid any misfeed during printing. 
+Now you have to adjust paper guides within the input tray to accommodate the size of the paper you are using. Then load the stack of plain paper into the tray. After that, modify the guide snugly against the paper to avoid any misfeed during printing.</p>
+
+</ol>
+<br>
+
+
 Steps to Setup the ij.start.canon ts3322
 After installing the printer physically, now it is time to install the necessary software.  Follow the below step-by-step guide to set up the ij.start.canon ts3322. 
 1. Power on the Printer
